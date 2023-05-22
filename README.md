@@ -6,6 +6,7 @@ INT. ANNA'S NIGHTMARE - NIGHT
 A dark, twisted version of Anna's apartment. Everything is distorted and unsettling. Shadows creep along the walls as if they have a life of their own.
 Anna (28, introverted, talente APARTMENT d artist) stands in the center of the room, surrounded by faceless figures that seem to be silently screaming. She feels their emotions - pain, fear, and anger - flooding into her, overwhelming her senses.
 Suddenly, Anna jolts awake.
+
 INT. ANNA'S - NIGHT
 Anna, frightened and confused, sits up in her small, cluttered apartment filled with art supplies and unfinished paintings.
 ANNA
