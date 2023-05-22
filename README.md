@@ -198,6 +198,7 @@ Anna, your paintings have been incredible lately. I'm so proud of you.
 ANNA
 Thanks, Lily. I've been working on controlling my emotions, and it's really helped.
 Lily, unaware of the true nature of Anna's abilities, nods in support.
+
 EXT. CITY PARK - DAY
 Anna and Mark continue their training sessions. Mark teaches Anna more advanced techniques to not only shield herself from others' emotions but also to project her own emotions onto others.
 MARK
